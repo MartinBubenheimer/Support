@@ -1,0 +1,1 @@
+Resources for universal purposes
